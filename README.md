@@ -1,2 +1,5 @@
-# jason-deyym
-whats up
+- 👋 Hi, I’m Jason Diel
+- 👀 I’m interested in making films and pet keeping
+- 🌱 I’m currently learning Adobe after effects and photoshop
+- 💞️ I’m looking to collaborate on vlogging
+- 📫 How to reach me just send a message on my email : jasendale69@gmail.com
